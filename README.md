@@ -1,0 +1,1 @@
+# aya-design-studio-public
